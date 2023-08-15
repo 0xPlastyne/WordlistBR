@@ -1,1 +1,1 @@
-# WordlistBR
+FUCK ALL COPS AND N00BS!
